@@ -1,0 +1,1 @@
+aku adalah lelaki sejati hehe
